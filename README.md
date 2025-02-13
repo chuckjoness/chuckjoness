@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @chuckjoness
 - 👀 I’m interested in learning more
-- 🌱 Int'l Op, Mgr. - webmaster, SEO / marketing 
+- 🌱 Int'l Op, Mgr. - Webmaster, SEO / Marketing 
 - 💞️ I’m looking to collaborate on SEO
 - 📫 How to reach me ...hERE
 
